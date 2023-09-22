@@ -1,1 +1,0 @@
-# Jesryl-Baguio.github.io
